@@ -1,6 +1,5 @@
 
  Hi, I’m Stefan @Crysta1Method \
- I’m interested in near death experiences :)) \
  I’m currently learning everything I can put my hands on \
  Looking to collaborate on front/back-end \
  Internship, part-time, full-time \
