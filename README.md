@@ -1,5 +1,5 @@
 
- Hi, I’m Stefan @Crysta1Method \
+ @Crysta1Method \
  Looking to collaborate on front/back-end \
  How to reach me aniculaesei.stefan@gmail.com
 
